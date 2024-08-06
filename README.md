@@ -1,0 +1,1 @@
+my portfolio is a collection of work that showcases my skills, certifications, and projects. It is often used by creative professionals, freelancers, and job seekers to demonstrate my abilities to potential clients or employers. Portfolios can include projects, case studies, examples of past work, and other relevant materials.
